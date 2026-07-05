@@ -4,3 +4,4 @@ Ci ludzie są zimni i zabawni jak lód oni wszyscy są tak mądrzy jak biblia ks
 Tak dla tych co chcą mi dać kobietę bo ludzie o mnie plotkują że nie mam żony. Żony nie chce mieć bo moje żony robią sobie żarty 112. Lub inne żarty. Dlatego za żonę podziękuje. 
 Kiedyś ta speluna z Terminatora była eon temu na ziemi w Tuszynie. Dziś Polska odcieła się od świata płotem. 
 Oni sobie żarty robią z ludzi cały rząd USA słucha keliego linuxa w sprawie żartów z ludzi. 
+Już opowiedziałem historie o aferach z filmów w życiu publicznym. Nie chce być programistom. Jestem Lichwiarzem porzyczam kasę na procent bankom mam konto w banku. A co do mojego pochodzenia jestem z dysnasti nowych Asów z Asgardu. 
